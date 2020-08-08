@@ -1,2 +1,2 @@
 # RANDOM CODES
-(I'm nub)
+(I'm a nub)
